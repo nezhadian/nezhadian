@@ -4,7 +4,7 @@
 - Phone Number : +98 991 852 5922
 - Email : yasin.ebr.nezh@gmail.com
 - Wesbite : https://nezhadian.ir
-## شبکه های احتماعی 
+## شبکه های اجتماعی 
 - تلگرام : https://t.me/nezhadian
 - لینکداین : https://linkedin.com/in/nezhadian
 - شماره تماس : 0991&nbsp;852&nbsp;5922
